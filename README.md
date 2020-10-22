@@ -1,1 +1,1 @@
-Hello this my homework about Probability and Stadistic
+Hello thats is my homeworks about Probability and Stadistic
